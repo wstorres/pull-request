@@ -10,4 +10,4 @@ Aprendendo: Clound Computing, Cibersecurity, Database 💻
 
 Sobre: Conheça um pouco mais sobre mim aqui 👇🏽
 
-LinkedIn: https://www.linkedin.com/in/wstorres/
+LinkedIn: https://www.linkedin.com/in/wagnertorresbr/
